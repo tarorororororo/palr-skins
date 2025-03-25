@@ -18,6 +18,6 @@ Lol
 
 <p align="center">
 <a href="https://osu.ppy.sh/users/15429006"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Osu%21_Logo_2016.svg/1024px-Osu%21_Logo_2016.svg.png" width="48"></a>
-<a href="https://www.youtube.com/channel/hililbrolol"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Youtube-variation.png/640px-Youtube-variation.png" width="48"></a>
+<a href="https://www.youtube.com/@palr8132"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Youtube-variation.png/640px-Youtube-variation.png" width="48"></a>
 <a href="https://www.twitch.tv/ppalr"><img src="https://www.freepnglogos.com/uploads/purple-twitch-logo-png-18.png" width="48"></a>
 </p>
