@@ -6,6 +6,8 @@ Lol
 
 ### [azerino2023 edit](https://palr.s-ul.eu/rvBOiyeK)
 
+### [azerino2023 edit copy (default combo colors)](https://palr.s-ul.eu/XtECnafx)
+
 ### [+GN](https://palr.s-ul.eu/5P95abCT)
 
 ### [Prawilnosc vDinoxe](https://palr.s-ul.eu/eiZQsDMg)
