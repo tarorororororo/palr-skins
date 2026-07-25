@@ -15,9 +15,11 @@ Lol
 ![screenshot613](https://github.com/user-attachments/assets/d219e72a-3982-4063-abe5-52a6f1edd4e5)
 
 ### [-GN 2017-09-16](https://palr.s-ul.eu/LPK4KcgI)
+### [current ver](https://palr.s-ul.eu/Bq0egyKo)
 ![screenshot615](https://github.com/user-attachments/assets/8da57d4d-7ee2-4442-8bf4-24e897d4a284)
 
 ### [oldtail](https://palr.s-ul.eu/PDUNLCpf) (mapping)
+### [current ver](https://palr.s-ul.eu/yFIK5qLp)
 ![screenshot616](https://github.com/user-attachments/assets/3982132f-211a-4af4-a480-4ccbd33389e0)
 
 ### [Rafis 2018-03-26 HDDT](https://palr.s-ul.eu/m9d6DcKx)
