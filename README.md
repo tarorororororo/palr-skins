@@ -1,5 +1,7 @@
 Lol
 
+<img width="2732" height="1572" alt="scorebar-bg@2x" src="https://github.com/user-attachments/assets/c8d054ba-c6b3-46bb-9e59-e26c0d47b630" />
+
 # [cursors](https://palr.s-ul.eu/APr0eVn9)
 
 ### [Aristia(Edit)](https://palr.s-ul.eu/njEjELkZ)
