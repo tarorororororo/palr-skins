@@ -1,8 +1,8 @@
 Lol
 
-<img width="2732" height="1572" alt="scorebar-bg@2x" src="https://github.com/user-attachments/assets/c8d054ba-c6b3-46bb-9e59-e26c0d47b630" />
-
 # [cursors](https://palr.s-ul.eu/APr0eVn9)
+# [hit300 circles](https://palr.s-ul.eu/nRGrekPi)
+# [playfield borders](https://palr.s-ul.eu/UMQ6nPlI)
 
 ### [Aristia(Edit)](https://palr.s-ul.eu/njEjELkZ)
 ![screenshot611](https://github.com/user-attachments/assets/7f488dda-33f3-416c-97cc-95ec61e91b68)
